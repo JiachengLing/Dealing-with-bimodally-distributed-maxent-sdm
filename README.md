@@ -10,5 +10,3 @@
    Set what happens.
 
    01 Aug 25.
-
-   Damn, I think SDM is schei.. nej but, , why I even choose this as my job?
